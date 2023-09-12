@@ -1,1 +1,0 @@
-List of collaborators: Maria Wagner
